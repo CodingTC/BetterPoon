@@ -1,1 +1,1 @@
-Like Harpoon but better
+Like the primeagen's Harpoon but better
